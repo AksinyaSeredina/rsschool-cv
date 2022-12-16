@@ -2,8 +2,8 @@
 
 
 **Location:** Omsk, Russia
-**Mail:** aksiseredina@gmail.com
-**Telegram:** @Axxxyniron1
+**Mail:**
+**Telegram:** 
 
 
 _______________________________________________________________________________________
